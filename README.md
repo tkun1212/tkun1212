@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @tkun1212
+- 👦 I'm japanese
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning Java
+- 📫 How to reach me
+- 📫 Discord:112_9
+- 📫 Gmail:xiaoyoudou15@gmail.com
+- 😄 Pronouns: He
